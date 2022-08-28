@@ -8,4 +8,4 @@ It's mostly related to cringe, but it can contain these:
 - "Burning-Sight Images"
    et cetera.
 
-So... yeah. You can download the zip if you dare.
+So... yeah. You can download the zip if you dare watch I guess.
